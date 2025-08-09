@@ -1,1 +1,1 @@
-# Zinny-Learns-AI-and-Biooinformatics_Biotechnology
+# Zinny-Learns-AI-and-Bioinformatics_Biotechnology
